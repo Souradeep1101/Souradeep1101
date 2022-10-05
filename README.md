@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Souradeep1101
 - 👀 I’m interested in Coding!
-- 🌱 I’m currently learning in High School!
+- 🌱 I’m currently studying in High School!
 - 📫 How to reach me: EMAIL - rishibanerjee1101@gmail.com
 - 🙏 Thank You!
 <!---
